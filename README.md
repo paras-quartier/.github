@@ -35,4 +35,4 @@ Compare the latest project information with your requirements and budget, and ve
 To Know More
 ☎️ +91 9971449027
 
-#ParasEstate #ParasEstateMeerut #ParasEstateImages #ParasEstateprice #ParasEstatereviews #ParasEstateRera #ParasEstateBrochure
+#ParasQuartier #ParasQuartierGurgaon #ParasQuartierReviews #ParasQuartierRent #ParasQuartierPhotos #ParasQuartierBrochure #ParasQuartierMaintenanceCharges
